@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ruthZquizz
 - 👀 I’m interested in Hacking
-- 🌱 I’m currently learning class6
-- 💞️ I’m looking to collaborate on idk
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on Idha Mind Care 
 - 📫 How to reach me= ruthzquizzarena@gmail.com
 
 <!---
